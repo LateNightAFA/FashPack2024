@@ -1,12 +1,10 @@
 # Fash Pack 2024: Over 1,400 PDFs of Nazi Unmaskings and the Far-Right
 [<img src="https://latenightafa.noblogs.org/files/2024/01/FashPack2024.png">](https://latenightafa.noblogs.org/fash-pack-2024-over-1400-pdfs-of-nazi-unmaskings-and-the-far-right)
 
-## This repo contains the file list only
-
-## Access the full archive [here](https://latenightafa.noblogs.org/fash-pack-2024-over-1400-pdfs-of-nazi-unmaskings-and-the-far-right)  
+## This repo contains the file list only. For access to the collection, see the full post [here](https://latenightafa.noblogs.org/fash-pack-2024-over-1400-pdfs-of-nazi-unmaskings-and-the-far-right)  
     
 
-| ARCHIVE CONTENTS                                                                                                                                                                                                                 |
+| FASH PACK 2024 ARCHIVE CONTENTS                                                                                                                                                                                                                 |
 |------------------------------------------------------------------------------------------------------------------|
 | (AUS) - Antipodean Resistance and the Lads Society - thewhiterosesociety.pdf                                                                                                                                                     |
 | (AUS) NSW Young Nationals stacked by Clifford Jennings and Neo-Nazis - thewhiterosesociety.pdf                                                                                                                                   |
