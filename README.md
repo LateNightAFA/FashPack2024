@@ -1,7 +1,7 @@
 # Fash Pack 2024: Over 1,400 PDFs of Nazi Unmaskings and the Far-Right
 [<img src="https://latenightafa.noblogs.org/files/2024/01/FashPack2024.png">](https://latenightafa.noblogs.org/fash-pack-2024-over-1400-pdfs-of-nazi-unmaskings-and-the-far-right)
 
-### Visit the post on the full archive [here](https://latenightafa.noblogs.org/fash-pack-2024-over-1400-pdfs-of-nazi-unmaskings-and-the-far-right)
+### Access the full archive [here](https://latenightafa.noblogs.org/fash-pack-2024-over-1400-pdfs-of-nazi-unmaskings-and-the-far-right)
 
 | ARCHIVE CONTENTS                                                                                                                                                                                                                 |
 |------------------------------------------------------------------------------------------------------------------|
