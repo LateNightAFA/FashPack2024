@@ -2,7 +2,7 @@
 [<img src="https://latenightafa.noblogs.org/files/2024/01/FashPack2024.png">](https://latenightafa.noblogs.org/fash-pack-2024-over-1400-pdfs-of-nazi-unmaskings-and-the-far-right)
 
 ## This repo contains the file list only. 
-## For access to the collection, see the full post [here](https://latenightafa.noblogs.org/fash-pack-2024-over-1400-pdfs-of-nazi-unmaskings-and-the-far-right)
+## For access to the collection, visit the post [here](https://latenightafa.noblogs.org/fash-pack-2024-over-1400-pdfs-of-nazi-unmaskings-and-the-far-right) ([mirror](https://sunlight161.noblogs.org/fash-pack-2024-over-1400-pdfs-of-nazi-unmaskings-and-the-far-right/))
 <br />
 <br />
 <br />   
@@ -1449,3 +1449,5 @@
 | Zachary West (US-CO) - Colorado Springs Anti-Fascists.pdf                                                                                                                                                                        |
 | Zachary West #NAZI (US-CO) - PrivateBin.pdf                                                                                                                                                                                      |
 | Zephyr Garrison #TB #FKD (US-NH) - The Teen Behind East Coast Efforts to Rebrand the Base & FKD - Eugene Antifa.pdf                                                                                                              |
+
+Follow us on X: [@LateNightAFA](https://twitter.com/LateNightAFA)
