@@ -1450,4 +1450,4 @@
 | Zachary West #NAZI (US-CO) - PrivateBin.pdf                                                                                                                                                                                      |
 | Zephyr Garrison #TB #FKD (US-NH) - The Teen Behind East Coast Efforts to Rebrand the Base & FKD - Eugene Antifa.pdf                                                                                                              |
 
-Follow us on X: [@LateNightAFA](https://twitter.com/LateNightAFA)
+You can follow [@LateNightAFA](https://twitter.com/LateNightAFA) and [@SunlightAFA](https://twitter.com/SunlightAFA) on X. 
